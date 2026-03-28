@@ -1,4 +1,4 @@
-<div align/"center" dir="auto">
+<div align="center" dir="auto">
 
 ![](https://komarev.com/ghpvc/?username=grimfantasy&color=000000&style=plasic&label=♡)
 
