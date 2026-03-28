@@ -4,6 +4,8 @@
 
 i complimented someone while unknowingly being the character that they hated 😂😂😂
 
+sorry abt that btw......
+
 also pfp is from @xu_xian14572 on x/twitter ^_^
 
 and uhhhhhhhh i'm open to many things ig, just basic dni criteria
