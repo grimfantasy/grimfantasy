@@ -11,3 +11,5 @@ tho it's genuinely funny being bad-talked AS you r playing the character they're
 also pfp is from @xu_xian14572 on x/twitter ^_^
 
 and uhhhhhhhh i'm open to many things ig, js basic dni criteria !!
+
+if i make u uncomf in anw, feel free to block :3
