@@ -5,3 +5,5 @@
 i complimented someone while unknowingly being the character that they hated 😂😂😂
 
 also pfp is from @xu_xian14572 on x/twitter ^_^
+
+i'm pretty much debating how i should treat my page atm 🤔🤔
